@@ -4,4 +4,4 @@ I am a senior at the University of Hawai'i at Manoa pursuing a BBA in Finance an
 - 🌱 Interests: Risk management, health and wellness
 - 🎯 Goal: To combine my majors with my interests in my career. Having a business career in the health and wellness center would be ideal.
 
-- Reach me at: fhmurphy@hawaii.edu
+Reach me at: fhmurphy@hawaii.edu
