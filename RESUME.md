@@ -8,4 +8,5 @@ Professional Experience:
 - Thimble Health - Social Media Marketing: Remotely created and scheduled social media content to increase brand engagement; Analyzed performance metrics to optimize campaigns.
   
 Honors and Awards: Seal of Biliteracy in Spanish.
+
 Skills and interests: Skills include financial analysis, team coordination, social media marketing, and client relations. My interests include wellness, Pilates and yoga, global business trends, dining, and travel.
